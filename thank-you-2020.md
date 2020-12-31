@@ -115,6 +115,11 @@ Alright, so, happy new Year, Paladin, we made it another year! I hope you're doi
 Well, let's get to Grumpah's (and not only) favorite brain in a jar!  
 Thanks a lot for offering your super cool DJ Skills and even better brain power, for people who seek a great way of passing time, help aor support ^^! You have a great personality and you don't avoid struggles, but face them head-on, which I personally find a very cool quality! I hope that you will have an awesome new year, with great oppotunities and perfect moments!
 
+## Dabdab
+> *a quote I'll yet have to find*
+
+You're a super wholesome and very talented person! You have an insane amount of skill concerning art and probably that expands to singing as well :nicoSmug:! I hope you'll have an epic new year and that you'll reach your goals, whatever they are! I'm looking forward to epic paintings and a lot of other new surprises in the new year!
+
 ## Snowiee
 > how  
 > to  
