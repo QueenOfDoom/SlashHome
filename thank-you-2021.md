@@ -121,10 +121,15 @@ Stay safe, healthy and keep honing your skills!
 ## Sora
 
 > Some Person: what's your favorite number?
+>
 > Zoe: I have many :thinking:
+>
 > Some Person: tell me the first few
+>
 > Zoe: *proceeds listing a few numbers*
+>
 > Some Person: is there a reason, why they're all in the range of 10^6 - 10^7?
+>
 > Zoe: Nah, not really...
 
 Heyyyy, even though you're one of the OG's - I don't think I talked too often to you, especially this year - so instead of saying something that might be outdated or untrue, I'll just leave some wishes - stay healthy and happy! Try to enjoy school as much as you can and make great decisions as your future catches up to you :wink:
