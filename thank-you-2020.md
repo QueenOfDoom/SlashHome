@@ -158,7 +158,7 @@ I hope this new year will turn out to be a great one for you, that you will acqu
 ## Zettai Ryouki
 > ![sudo ./meme](https://cdn.discordapp.com/attachments/788491879863025665/789564927517524030/131547726_4126880897325257_4100107255291610329_n.png)
 
-Long time no C, just python, judging from your code I guess :sataXD:! - You know me, I love puns xD! So hopefully this year will go easier on you and I hope that the load on you will reduce! Best of luck with your master thesis - I'm 100% sure, that you will nail it! I will try to text more often, than I used to, to keep checking on how you do / feel ^^. In my opinion it's important to [get help](https://tenor.com/view/thor-ragnarok-get-help-funny-throw-gif-14270786) if you're struggling, but in the end it's up to you, who you entrust with your life - if I am worthy, feel free to tell me :).  
+Long time no C, just ~~python~~ terraform and that ~~fucking stupid~~ awesome yaml, judging from your code I guess :sataXD:! - You know me, I love puns xD! So hopefully this year will go easier on you and I hope that the load on you will reduce! Best of luck with your master thesis - I'm 100% sure, that you will nail it! I will try to text more often, than I used to, to keep checking on how you do / feel ^^. In my opinion it's important to [get help](https://tenor.com/view/thor-ragnarok-get-help-funny-throw-gif-14270786) if you're struggling, but in the end it's up to you, who you entrust with your life - if I am worthy, feel free to tell me :).  
 I was very happy when I knew, that we still have a way to talk, so I gotta thank you for that! I'd miss talks with ya!
 
 ## Canter
